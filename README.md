@@ -3,3 +3,6 @@
 - Mike
 - Laurah
 - Precious
+- Sumir
+- Trushar
+- Agnes
