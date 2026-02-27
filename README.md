@@ -1,1 +1,5 @@
-# colab-party
+# Colab Party 
+
+- Mike
+- Laurah
+- Precious
