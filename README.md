@@ -6,4 +6,4 @@
 - Sumir
 - Trushar
 - Agnes
-The oarty pooper is mr wiggles hahahaha
+The party pooper is Mr. Wiggles hahahaha
